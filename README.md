@@ -13,7 +13,7 @@
 
 - 👀 I'm interested in **programming and creating new stuffs.**
 
-- 📫 How to reach me on **Gmail: kaustubhnaithani101010@gmail.com and on discord: Kaustubh#6029**
+- 📫 How to reach me **Gmail: kaustubhnaithani101010@gmail.com and on discord: Kaustubh#6029**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
